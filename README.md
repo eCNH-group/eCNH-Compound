@@ -109,4 +109,5 @@ https://ecnh-compound.base44.app/
 
 <img width="1306" height="785" alt="探索eCNH 流动池复利系统 image" src="https://github.com/user-attachments/assets/c272a479-e27a-47a5-b34b-d4055ac092ff" />
 
+<img width="402" height="587" alt="全球华人最多的10个城市 image" src="https://github.com/user-attachments/assets/d70871d0-aa19-455e-a4b9-32c0b047a0d9" />
 
