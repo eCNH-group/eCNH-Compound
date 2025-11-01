@@ -19,6 +19,10 @@ https://www.orca.so/pools/EoEjy16d4vkejxF5VueDhAV8kCTHe2Mz1JUEWuZojamy
 <img width="1307" height="889" alt="CNH-Compound 45e0701834a21650b12739f1013bfaf9" src="https://github.com/user-attachments/assets/765606b8-6270-46df-b5cf-d061425d718d" />
 
 
+<img width="1122" height="807" alt="eCNH Compound,探索，1000亿 eCNH 的复利潜力，流动池从1万-10万-100万-1000万-1亿-10-50-100-200-300-500-1000亿的逐步增加，复利也会越来越好。 image" src="https://github.com/user-attachments/assets/29b0601b-1c4e-4086-bb08-3138561b6eaf" />
+
+
+
 <img width="397" height="596" alt="eCNH-Compound 14f0e0023b154b60f468a361348fb683" src="https://github.com/user-attachments/assets/0f729719-02ce-4e32-8fad-f58e92d45f3b" />
 
 
